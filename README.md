@@ -1,6 +1,6 @@
 👋 Hello! I'm Kavita Javalagi, an Information Systems graduate Student at Georgia State University concentrating in Digital Innovation.
 
-As an experienced IT professional with upto 3 years experience in software development, I thrive on turning visionary ideas into tangible products that make a real impact. 
+Results-driven IT professional with 3+ years of experience in product management and software development. I thrive on turning visionary ideas into tangible products that make a real impact. 
 Seeking Full-Time/Internship Possibilities beginning this Summer'23.
 
 📫 Reach me at kavitabjavalagi@gmail.com
